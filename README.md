@@ -1,0 +1,1 @@
+# Tabiiy-fanlar-6
